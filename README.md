@@ -1,0 +1,1 @@
+Bruh momenat je potvrđen
